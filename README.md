@@ -1,4 +1,4 @@
 # Hello
 
 ### Amy Bunayamongkol
-Cellist - San Francisco Conservatory of Music
+Cellist and HCI Researcher
