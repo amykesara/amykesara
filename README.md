@@ -1,4 +1,4 @@
-# Hello
+# Hello :p
 
 ### Amy Bunayamongkol
 Cellist and HCI Researcher  
