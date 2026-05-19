@@ -4,4 +4,4 @@
 Cellist and HCI Researcher  
 
 
-Master of Music and Computer Science ♡
+Masters in Music and Computer Science ♡
