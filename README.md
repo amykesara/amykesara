@@ -1,6 +1,6 @@
 # Hello :p
 
-### Amy Bunayamongkol
+### Kesara Bunayamongkol
 Cellist and HCI Researcher  
 
 
